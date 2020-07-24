@@ -4,4 +4,4 @@
 - 🌱 I’m currently studying Data Science and AI in Nanyang Technological University.
 - 🤔 Ask me about anything!💬
 - 📫 How to reach me: valencialie11@yahoo.com
-- ✨ Fun fact: I love reading novels
+- ✨ Fun fact: I love reading novels and watching Korean shows!
